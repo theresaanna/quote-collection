@@ -10,3 +10,7 @@ Read more at http://www.brainyquote.com/quotes/authors/b/bertrand_russell.html#z
 Advocates of capitalism are very apt to appeal to the sacred principles of liberty, which are embodied in one maxim: The fortunate must not be restrained in the exercise of tyranny over the unfortunate.
 Bertrand Russell 
 Read more at http://www.brainyquote.com/quotes/authors/b/bertrand_russell.html#zKCFaCt5C2qrIiwI.99 
+
+The world is full of magical things patiently waiting for our wits to grow sharper.
+Bertrand Russell 
+Read more at http://www.brainyquote.com/quotes/authors/b/bertrand_russell.html#zKCFaCt5C2qrIiwI.99 
