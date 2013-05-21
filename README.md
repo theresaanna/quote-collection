@@ -14,3 +14,7 @@ Read more at http://www.brainyquote.com/quotes/authors/b/bertrand_russell.html#z
 The world is full of magical things patiently waiting for our wits to grow sharper.
 Bertrand Russell 
 Read more at http://www.brainyquote.com/quotes/authors/b/bertrand_russell.html#zKCFaCt5C2qrIiwI.99 
+
+The secret of happiness is this: let your interests be as wide as possible, and let your reactions to the things and persons that interest you be as far as possible friendly rather than hostile.
+Bertrand Russell 
+Read more at http://www.brainyquote.com/quotes/authors/b/bertrand_russell_2.html#M4qAhrDX7Kc45Me2.99 
